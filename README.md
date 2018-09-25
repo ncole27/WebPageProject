@@ -1,2 +1,2 @@
-# WebPageProject
-Cps 105 
+# Nathaniel Colegrove
+Freshman in Greenville, South Carolina 
